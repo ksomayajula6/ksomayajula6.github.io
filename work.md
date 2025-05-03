@@ -28,7 +28,7 @@ title: "Experience"
 • Prepare and facilitate entry and seating on game day for customers, ensuring smooth operations
 
 ## Napoli 1 Pizza, Johns Creek, GA
-### Shfit Manager, October 2021 - March 2023
+### Shift Manager, October 2021 - March 2023
 • Proficient in accurately processing transactions, operating cash registers, and maintaining a welcoming
 environment for customers.
 • Exceptional customer service skills demonstrated through resolving inquiries, handling cash with
